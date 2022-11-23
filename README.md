@@ -1,5 +1,5 @@
 
-## Hello There, I am Naphtali👋
+## Hello There, I am Tyrel👋
 
 Result-driven Cyber Security Expert with 2 years of experience background in securing various networks and systems for government institutions.
 
